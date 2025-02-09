@@ -6,3 +6,5 @@ Executive Order 13605 of April 13 2012 ( Supporting Safe and Responsible Develop
 77 F.R. 23107
 Executive Order 13609 0f May 1, 2012 ( Promotinig International Regulatory Cooperation )
 77 F.R. 26413
+Executive Order 13610 of May 10,2012 ( Identifying and Reducing Regulatory Burdens)
+77 F.R. 28469
