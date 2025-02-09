@@ -30,3 +30,13 @@ Executive Order 13478 of November 18, 2008 73 F.R. 70239
 Executive Order 13639 of March 28, 2013 78 F.R. 19979
 Executive Order 13636 of Febuary 12, 2013 78 F.R. 11739
 Executive Order 13456 of January 23, 2008 73 F.R. 4677
+Executive Order 13563 of January 18, 2011 76 F.R. 3821
+Executive Order 13564 of January 31, 2011 76 F.R. 6309
+Executive Order 13565 of Febuary 8, 2011 76 F.R.  7681
+Executive Order 13566 of February 25, 2011 76 F.R. 11315
+Executive Order 13568 pf March 8, 2011 76 F.R. 13497
+Executive Order 13570 of April 18, 2011 76 F.R. 22291
+Executive Order 13571 of April 27, 2011  76 F.R. 24339
+Executive Order 13572 of April 29, 2011 76 F.R. 24787
+Executive Order 13575 of June 9, 2011 76 F.R. 34841
+Executive Order 13576 of June 13, 2011 76 F.R. 35297
