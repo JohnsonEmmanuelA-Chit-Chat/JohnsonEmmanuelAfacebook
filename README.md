@@ -10,3 +10,5 @@ Executive Order 13610 of May 10,2012 ( Identifying and Reducing Regulatory Burde
 77 F.R. 28469
 Executive Order 13616 of June 14, 2012 ( Acceleratiing Broadband Infrastucture Deployment )
 77 F.R. 36903
+
+https://www.congress.gov/bill/112th-congress/house-bill/2072/text
