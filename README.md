@@ -49,6 +49,6 @@ Conference Report No. 2408, Sept. 18, 1962 [To accompany S. 1037]
                     House Report No.1546
 REVENUE ACT OF 1962 II INVESTEMENT CREDIT
 (Sec. 2 of the bill and secs. 38, 46-48, and 181 of the code)
-Senate Report No. 2221, OOct. 1 1962 [To accompany H.R. 10708]
+Senate Report No. 2221, Oct. 1 1962 [To accompany H.R. 10708]
 House Report No. 1622, Apr. 18, 1962 [To accompany H.R. 10708]
                    Senate Report No. 2221
