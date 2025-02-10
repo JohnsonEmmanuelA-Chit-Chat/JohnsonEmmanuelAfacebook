@@ -34,7 +34,7 @@ Executive Order 13563 of January 18, 2011 76 F.R. 3821
 Executive Order 13564 of January 31, 2011 76 F.R. 6309
 Executive Order 13565 of Febuary 8, 2011 76 F.R.  7681
 Executive Order 13566 of February 25, 2011 76 F.R. 11315
-Executive Order 13568 pf March 8, 2011 76 F.R. 13497
+Executive Order 13568 of March 8, 2011 76 F.R. 13497
 Executive Order 13570 of April 18, 2011 76 F.R. 22291
 Executive Order 13571 of April 27, 2011  76 F.R. 24339
 Executive Order 13572 of April 29, 2011 76 F.R. 24787
