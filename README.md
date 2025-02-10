@@ -40,12 +40,15 @@ Executive Order 13571 of April 27, 2011  76 F.R. 24339
 Executive Order 13572 of April 29, 2011 76 F.R. 24787
 Executive Order 13575 of June 9, 2011 76 F.R. 34841
 Executive Order 13576 of June 13, 2011 76 F.R. 35297
-Senate Report No. 2039, Sept 13, 1962 [ To accompany H.R. 12577]
-House Report No. 2233, Aug 20, 1962 [ To accompany H.R. 12577 ]
-                    Senate Report No.2039
-Senate Report No. 750, Aug 16, 1961 [ To accompany S. 1037]
+Senate Report No. 2039, Sept 13, 1962 [To accompany H.R. 12577]
+House Report No. 2233, Aug 20, 1962 [To accompany H.R. 12577]
+                   Senate Report No.2039
+Senate Report No. 750, Aug 16, 1961 [To accompany S. 1037]
 House Report No. 1546, Mar. 29, 1962 [To accompany S. 1037]
-Conference Report No. 2408, Sept. 18, 1962 [ To accompany S. 1037]
+Conference Report No. 2408, Sept. 18, 1962 [To accompany S. 1037]
                     House Report No.1546
 REVENUE ACT OF 1962 II INVESTEMENT CREDIT
 (Sec. 2 of the bill and secs. 38, 46-48, and 181 of the code)
+Senate Report No. 2221, OOct. 1 1962 [To accompany H.R. 10708]
+House Report No. 1622, Apr. 18, 1962 [To accompany H.R. 10708]
+                   Senate Report No. 2221
