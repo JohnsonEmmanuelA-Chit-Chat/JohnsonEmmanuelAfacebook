@@ -40,3 +40,6 @@ Executive Order 13571 of April 27, 2011  76 F.R. 24339
 Executive Order 13572 of April 29, 2011 76 F.R. 24787
 Executive Order 13575 of June 9, 2011 76 F.R. 34841
 Executive Order 13576 of June 13, 2011 76 F.R. 35297
+Senate Repotr No. 2039, Sept 13, 1962 [ To accompany H.R. 12577]
+House Report No. 2233, Aug 20, 1962 [ To accompany H.R. 12577 ]
+                    Senate Report No.2039
