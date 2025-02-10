@@ -43,3 +43,7 @@ Executive Order 13576 of June 13, 2011 76 F.R. 35297
 Senate Report No. 2039, Sept 13, 1962 [ To accompany H.R. 12577]
 House Report No. 2233, Aug 20, 1962 [ To accompany H.R. 12577 ]
                     Senate Report No.2039
+Senate Report No. 750, Aug 16, 1961 [ To accompany S. 1037]
+House Report No. 1546, Mar. 29, 1962 [To accompany S. 1037]
+Conference Report No. 2408, Sept. 18, 1962 [ To accompany S. 1037]
+                    House Report No.1546
